@@ -190,9 +190,9 @@ Speaking of which.. how do you know if you're a close friend of mine? vvv
 
 Friend - We talk, yap, I don't share any senstive information like my mental.
 
-Close friend - By now, I let you vent to me. I share my experiences a little, and I let you cuddle me freely! woah . . . :O
+Close friend - By now, I let you vent to me. I share my experiences a little only if you allow it, and I let you cuddle me freely! woah . . . :O
 
-Heavily close friend - I tell alot about my personal life, photos irl, (maybe age), and I may start getting clingy as I've shared a ton of information. You are allowed to call me any nicknames by now! (Wife, husband, etc etc.)
+Heavily close friend - I tell alot about my personal life, photos irl, (maybe age), and I may start getting clingy as I've shared a ton of information. You are allowed to call me any nicknames by now! (Just not the obvious: wife, husband, gf/bf .)
 
 Extremely close friend - I share you my voice, *maybe my face*, my mental health struggles, and this is where I start to cling more onto you. It's mainly because I've shared so much about myself.
 
