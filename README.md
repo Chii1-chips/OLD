@@ -241,6 +241,8 @@ SHIPS I like!
 
 #### Quote as of May 29 2026 "dude im spiritually everywhere else like in russia and cuba" - me
 
+#### Quote as of August 13 2026 "It was the helperbots we used ass a stepping stool" - Cyanide (oomfie  !)
+
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 
 # This is the end of this github page for NOW!! I may add stuff in the future, but for now? I need to take a break. 
